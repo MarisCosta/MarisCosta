@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MarisCosta
-- Graduando em Saúde Coletiva - IESC/UFRJ
+- Graduanda em Saúde Coletiva - IESC/UFRJ
 - 📫 marianascosta77@gmail.com
 
 <!---
